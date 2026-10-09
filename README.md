@@ -1,0 +1,2 @@
+# premium-tree-make-001-wooden-saddle-tree-fitting-gui
+Guessing your wooden saddle tree fit is costing you money in returns, poor reviews, and customer frustration. Stop measuring wrong — get a Notion system that catches fitting issues before they become problems.  The Wooden Saddle Tree Fitting Guide is a pre-built Notion template that eliminates the guesswork from saddle tree measurements and specifi
